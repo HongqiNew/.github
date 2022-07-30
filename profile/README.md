@@ -6,7 +6,7 @@
 链接：
 - [Telegram](https://t.me/newhongqi/)
 - [Twitter](https://twitter.com/newhongqi)
-- [社论发布站](https://newhongqi.eu.org/)
+- [社论发布站](https://newhongqi.org/)
 
 欢迎[发送邮件](mailto:NewHongqi@proton.me)来稿，欢迎私信 Twitter 加入。
 
