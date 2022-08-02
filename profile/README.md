@@ -8,6 +8,6 @@
 - [Twitter](https://twitter.com/newhongqi)
 - [社论发布站](https://newhongqi.org/)
 
-欢迎[发送邮件](mailto:NewHongqi@proton.me)来稿，欢迎私信 Twitter 加入。
+欢迎[查询我们的网站页面](https://newhongqi.org/art/5)获知来稿方法，欢迎私信 Twitter 加入。
 
 请在联系时保护好个人隐私。
